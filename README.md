@@ -1,4 +1,4 @@
-# DECO*27 – モニタリング (Best Friend Remix) - Monitoring (Best Friend Remix)
+# DECO*27 – モニタリング - Monitoring
 
 > **歌詞登録ステータス：同期歌詞あり**
 
